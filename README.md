@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mommag34
 - 👀 I’m interested in messaging
 - 🌱 I’m currently learning alot 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on messaging platforms I need help if I can show you files and you tell me what they mean...
 - 📫 How to reach me ... jordank603@gmail.com
 
 <!---
